@@ -12,6 +12,7 @@
 ## Концепт
 
 https://youtu.be/YLHE7ypdafs
+
 https://miro.com/app/board/o9J_lhprlBs=/
 
 
